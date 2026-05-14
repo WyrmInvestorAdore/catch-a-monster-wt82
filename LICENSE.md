@@ -1,4 +1,4 @@
-#  
+#  instant math for brainrots Script is the best math for brainrots Script, featuring no cooldown and auto-farm. Safe and powerful for all your needs.
 
 
 
